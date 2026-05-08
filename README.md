@@ -1,2 +1,2 @@
-# Professor-jalal.github.io
+# professor-jalal.github.io
 About me
